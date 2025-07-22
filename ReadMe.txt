@@ -53,5 +53,5 @@ CONTACT INFORMATION
 For any feedback, report, suggestions please contact
 Vivek S Patil
 SID : 1784765
-Email : 1784765@student.swin.edu.au
+email : vivekspatil20@gmail.com
 Mobile: 0424-485-291
